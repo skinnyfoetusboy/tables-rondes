@@ -9,7 +9,7 @@
 
 ## 🕘 Quand ?
 
-Lundi 22 Février.
+Lundi 22 Février à 19h30.
 
 ## 🏠 Où ?
 
