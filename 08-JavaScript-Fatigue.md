@@ -13,7 +13,7 @@ Lundi 22 Février.
 
 ## 🏠 Où ?
 
-Altima Paris: 101 Rue Réaumur 75002 Paris
+Altima Paris : 101 Rue Réaumur 75002 Paris
 
 ## Qui ?
 
