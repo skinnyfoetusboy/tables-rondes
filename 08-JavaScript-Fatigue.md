@@ -9,21 +9,15 @@
 
 ## 🕘 Quand ?
 
-Lundi 22 Février à 19h30.
+~~Lundi 22 Février à 19h30.~~
+reporté
 
 ## 🏠 Où ?
 
-Altima Paris : 101 Rue Réaumur 75002 Paris
+~~Altima Paris : 101 Rue Réaumur 75002 Paris~~
+à définir
 
 ## Qui ?
 
 Membres | Statut |
 --------|:------:|
-@bloodyowl | 🍻
-@kud | 👮
-@remitbri | 🏠
-@skinnyfoetusboy | 👾
-@arnaudlimbourg | 🦀
-@matti_sg | 💖
-@freddy03h | 🕹
-@risseraka | 🖕
