@@ -26,3 +26,4 @@ Membres | Statut |
 @arnaudlimbourg | 🦀
 @matti_sg | 💖
 @freddy03h | 🕹
+@risseraka | 🖕
