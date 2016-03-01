@@ -9,15 +9,14 @@
 
 ## 🕘 Quand ?
 
-~~Lundi 22 Février à 19h30.~~
-reporté
+Lundi 07 Mars à 19h30.
 
 ## 🏠 Où ?
 
-~~Altima Paris : 101 Rue Réaumur 75002 Paris~~
-à définir
+Devfloor, 71 rue du Faubourg St Martin, 75010 Paris
 
 ## Qui ?
 
 Membres | Statut |
 --------|:------:|
+@bloodyowl | 🍻
