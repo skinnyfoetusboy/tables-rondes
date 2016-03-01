@@ -20,3 +20,4 @@ Devfloor, 71 rue du Faubourg St Martin, 75010 Paris
 Membres | Statut |
 --------|:------:|
 @bloodyowl | 🍻
+@skinnyfoetusboy | :shipit:
